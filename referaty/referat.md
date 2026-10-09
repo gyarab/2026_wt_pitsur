@@ -14,3 +14,5 @@ Jeho práce na modrých LED umožnila vývoj úsporného bílého LED osvětlen�
 ![Shuji Nakamura](https://live.staticflickr.com/5611/15485959887_a519d8144c_o.jpg)
 
 **Zdroj:** [Nobel Prize – Shuji Nakamura](https://www.nobelprize.org/prizes/physics/2014/nakamura/)
+gfhfgjhgmngjmnbjf
+
